@@ -2,7 +2,7 @@
 
 Damit du bald auch Master of Desaster auf deine Tür schreiben kannst. ;) 
 
-![Win](dimi-thanos.github.io/blob/gh-pages/assets/images/bild2.jpg)
+![Win](assets/images/bild2.jpg)
 
-![WinWin](dimi-thanos.github.io/blob/gh-pages/assets/images/bild1.jpg)
+![WinWin](assets/images/bild1.jpg)
 
