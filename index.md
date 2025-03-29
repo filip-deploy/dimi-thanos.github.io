@@ -12,7 +12,7 @@ Love, F.R & L.S
 
 ________________________________________
 
-Damit Du bald "[contact@dimithanos.com]()" auf Deine Visitenkarte schreiben und coole Projecte teilen kannst, schenke ich Dir Deine eigenen Domains, [www.dimithanos.de](www.dimithanos.de) und [www.dimithanos.com](www.dimithanos.com). Ob für immer oder ein Jahr, wer weiß. ;) 
+Damit Du "[contact@dimithanos.com]()" auf Deine Visitenkarte schreiben und coole Projecte teilen kannst, schenke ich Dir Deine eigenen Domains, [www.dimithanos.de](www.dimithanos.de) und [www.dimithanos.com](www.dimithanos.com). Ob für immer oder ein Jahr, wer weiß. ;) 
 
 Ich hoffe, Du freust Dich und machst irgendwann etwas Cooles damit. 
 ________________________________________
