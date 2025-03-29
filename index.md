@@ -1,6 +1,6 @@
 # Χρόνια Πολλά, Δημήτριε!
 
-Wir wünschen Dir nochmal alles erdenklich Gute für den Einschieg in den "mittleren" Lebensabschnitt, die vierte Dekade. \
+Wir wünschen Dir nochmal alles erdenklich Gute für den Einstieg in den "mittleren" Lebensabschnitt, die vierte Dekade. \
 Mögen Gesundheit, Familie und Erfolg immer nah bei Dir sein. 
 
 Auch dieses Jahr wurden Deine Domains selbstverständlich verlängert. \
