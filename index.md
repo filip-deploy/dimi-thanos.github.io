@@ -1,14 +1,15 @@
 # Χρόνια Πολλά, Δημήτριε!
 
-Wir wünschen Dir nochmal alles erdenklich Gute für den Einschieg in den "mittleren" Lebensabschnitt, die vierte Dekade. 
+Wir wünschen Dir nochmal alles erdenklich Gute für den Einschieg in den "mittleren" Lebensabschnitt, die vierte Dekade. \n
 Mögen Gesundheit, Familie und Erfolg immer nah bei Dir sein. 
 
-Auch dieses Jahr wurden Deine Domains selbstverständlich verlängert. 
-Das größere Geschenk ist natürlich die gemeinsame Zeit, die immer unbeschwert und glücklich ist.
+Auch dieses Jahr wurden Deine Domains selbstverständlich verlängert. \n
+Das größere Geschenk ist natürlich die gemeinsame Zeit, die immer unbeschwert und glücklich ist. \n
+Sehr bald werden wir noch eine weitere Gemeinsamkeit haben. Du kommst bestimmt nicht drauf, welche. ;) 
 
 ![W](assets/images/344ce0b3-7159-4658-8caa-fdaea9f9d850.JPG)
 
-Love, F.R & L.S 
+Love, F.R & J.C.A & L.S 
 
 ________________________________________
 
