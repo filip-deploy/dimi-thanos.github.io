@@ -4,12 +4,11 @@ Wir wünschen Dir nochmal alles erdenklich Gute für den Einschieg in den "mittl
 Mögen Gesundheit, Familie und Erfolg immer nah bei Dir sein. 
 
 Auch dieses Jahr wurden Deine Domains natürlich verlängert. 
-Das größere Geschenk ist natürlich die gemeinsame Zeit, die meist unbeschwert und glücklich ist.
+Das größere Geschenk ist natürlich die gemeinsame Zeit, die immer unbeschwert und glücklich ist.
 
-
+![W](assets/images/344ce0b3-7159-4658-8caa-fdaea9f9d850.JPG)
 
 Love, F.R & L.S 
-
 
 ________________________________________
 
